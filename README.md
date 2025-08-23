@@ -5,3 +5,5 @@ https://drive.google.com/file/d/1CEoz8G-B7hgLv_HoxKHzeHKmPd7Q3eU5/view?usp=shari
 
 # OS_win10
 https://drive.google.com/file/d/15suhDHEBCmjQ37-_wH-rL-gpLoSgorzS/view?usp=sharing
+
+https://drive.google.com/file/d/1D6yzvsG4VmHM9OiigbHuxgpYUC1tYV8v/view?usp=sharing
