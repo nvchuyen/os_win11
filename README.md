@@ -9,7 +9,4 @@ https://drive.google.com/file/d/15suhDHEBCmjQ37-_wH-rL-gpLoSgorzS/view?usp=shari
 https://drive.google.com/file/d/1D6yzvsG4VmHM9OiigbHuxgpYUC1tYV8v/view?usp=sharing
 
 # office_2021
-https://drive.google.com/drive/folders/1Nr0YaBTtyQ2X92NLZhe2E3bztIFFjkrR?usp=sharing
-- cr: https://drive.google.com/file/d/11RdOZ0zfb5jdiWBxE3LRVmzSHPA0zB1t/view?usp=sharing
-- bK: https://drive.usercontent.google.com/download?id=1aLFcNGAz_dWpi-Ry3KYDLGsYV09eMYKd&export=download&authuser=0
-- bk2: https://drive.google.com/drive/folders/1tGyTs9jc7w4vM4-b6vel2XEYusHtomZa?usp=sharing
+https://drive.google.com/drive/folders/1li1iirx1txeSqt9xDAjM2I7l7EgJxzDW?usp=sharing
